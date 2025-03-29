@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @yN1ckDev or simply call me Nick
+- 👋 Hi, I’m @AyoMattiol or simply call me Nick
 
 → 📫 My Contats:
 
 • Telegram » @onEnable
-• Discord » n1ckcode
+• Discord » ayomattiol
 
 → 💸 Commissions
 
@@ -12,7 +12,7 @@
 
 →👑 My Shop
 
-• https://dsc.gg/nethernexus
+• @onEnable
 
 
 → 🏳️ Languages
